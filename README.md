@@ -1,0 +1,5 @@
+- 👋 Yo, I’m Honklord, Captain of the Golden Spade.
+- 👀 I’m interested in: Learning how to code games.
+- 🌱 I’m currently learning: Everything, I have no idea how to code.
+- 💞️ I’m looking to collaborate on: Nothing, thoust fools have no hope to helpeth me! Mine projects are too advanced for such low worms such as yourself. (However, if you are smart help would be appreciated as I suck at coding.)
+- 📫 How to reach me: Carrier pigeon or smoke signals / @bbob25110@gmail.com
